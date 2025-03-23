@@ -23,7 +23,7 @@ I'm a **cybersecurity researcher** and **ethical hacker** with a passion for **O
 
 ## 📫 How to Reach Me
 - 📧 Mail ID?? HAHAHAHAHA Try finding that (got a sick resume tho)
-- 🐦 **@GruSenapathi** on Twitter
+- 🐦 **@GruSenapati** on Twitter, yea I spelt it wrong here the first time :(
 
 ## 🏆 Fun Fact
 I may or may not have a secret lab filled with little yellow cyber-minions running penetration tests for me. 🤫💻
